@@ -5,4 +5,3 @@
 -👀 I'm interested in gaming.
 -📧 How to reach me abdullahalabid2001@gmail.com
 
-## Watch my channel
